@@ -1,0 +1,1 @@
+# Vistalizator-Full-Version
